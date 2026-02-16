@@ -110,3 +110,5 @@ Please do message me or email me at ed@edwarddonner.com if this doesn't work or 
         </td>
     </tr>
 </table>
+#   L L M - E n g i n e e r - i n - 8 - w e e k s - B u i l d - a n d - d e p l o y - 8 - L L M - a p p s - m a s t e r i n g - G e n e r a t i v e - A I - R A G - L o R A - a n d - A I - A g e n t s .  
+ 
